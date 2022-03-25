@@ -1,0 +1,1 @@
+Im sorry you have to download the game here:https://hexikalgamer.itch.io/gorilla-shoot
